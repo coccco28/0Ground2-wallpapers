@@ -1,1 +1,0 @@
-# 0Ground2-wallpapers
